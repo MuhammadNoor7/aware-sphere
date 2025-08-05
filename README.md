@@ -1,1 +1,1 @@
-
+Addressing critical issues like climate change and the paradox of gaming. It also highlights the importance of focus and productivity in today's fast-paced world. By raising awareness and promoting sustainable solutions, I aim to foster a more informed, proactive society and demonstrate my commitment to mental well-being.
